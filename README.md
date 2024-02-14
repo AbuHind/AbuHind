@@ -11,4 +11,4 @@
 - 📫 So erreicht du mich : akrekshi@t-online.de
 - ⚡ Ich hatte vor, eine viertägige Wanderung im Winter zu unternehmen, und zwar mit einem Aktionszelt, das 6 Euro kostete. Das Projekt musste jedoch bereits nach der ersten Nacht abgebrochen werden.
 
-<div style="width:480px"><iframe allow="fullscreen" frameBorder="0" height="242" src="https://giphy.com/embed/Mz5eBVbT09HDMl0LGB/video" width="480"></iframe></div>
+https://giphy.com/clips/hamlet-bunk-beds-so-much-space-buddy-Mz5eBVbT09HDMl0LGB
